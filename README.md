@@ -1,0 +1,2 @@
+# globesold.com
+redir
