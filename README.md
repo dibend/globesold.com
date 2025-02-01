@@ -1,2 +1,2 @@
 # globesold.com
-redir
+coming soon
